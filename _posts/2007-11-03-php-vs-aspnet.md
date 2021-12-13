@@ -28,8 +28,3 @@ MySQL Downloads
 
 So to use open-source free products, I need **time + experience**, which is worth a lot of money I think.
 
-- [cialis generique pharmacie](http://knappcenter.iit.edu/students/kiea/apply-kiea/), [prix de cialis](http://knappcenter.iit.edu/students/events/idea-challenge/), [acheter du cialis sur internet](http://knappcenter.iit.edu/students/events/innovation-chase/), [cialis vente libre](http://knappcenter.iit.edu/students/kiea/)
-
-- [viagra livraison rapide](http://distance.uaf.edu/tmp/1-viagra-livraison-rapide.php), [generique viagra 50mg](http://distance.uaf.edu/tmp/1-generique-viagra-50mg.php)
-
-[clomid](http://hammer.ucla.edu/newsblogs/?m=200805), [synthroid](http://hammer.ucla.edu/newsblogs/?m=200806), [zithromax](http://hammer.ucla.edu/newsblogs/?m=200808), [accutane](http://hammer.ucla.edu/newsblogs/?m=200809), [celebrex](http://hammer.ucla.edu/newsblogs/?m=200810)

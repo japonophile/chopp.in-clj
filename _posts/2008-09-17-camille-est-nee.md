@@ -35,8 +35,3 @@ _Douce pluie d'automne. Camille, tu portes les fruits d'un chemin de Vie._
 
 [![Manon]({{ site.url }}{{ site.baseurl }}/images/2008/09/manon-naissance.thumbnail.jpg)](http://blog.japonophile.com/wp-content/uploads/2008/09/manon-naissance.jpg "Manon") [![Camille]({{ site.url }}{{ site.baseurl }}/images/2008/09/camille-naissance.thumbnail.jpg)](http://blog.japonophile.com/wp-content/uploads/2008/09/camille-naissance.jpg "Camille")
 
-- [generique cialis 20mg](http://knappcenter.iit.edu/students/kiea/apply-kiea/), [prix du cialis 20](http://knappcenter.iit.edu/students/events/idea-challenge/), [cialis 20mg lilly](http://knappcenter.iit.edu/students/events/innovation-chase/), [cout du cialis](http://knappcenter.iit.edu/students/kiea/)
-
-- [viagra en belgique](http://distance.uaf.edu/tmp/1-viagra-en-belgique.php), [prendre du viagra](http://distance.uaf.edu/tmp/1-prendre-du-viagra.php)
-
-[clomid](http://hammer.ucla.edu/newsblogs/?m=200805), [synthroid](http://hammer.ucla.edu/newsblogs/?m=200806), [zithromax](http://hammer.ucla.edu/newsblogs/?m=200808), [accutane](http://hammer.ucla.edu/newsblogs/?m=200809), [celebrex](http://hammer.ucla.edu/newsblogs/?m=200810)

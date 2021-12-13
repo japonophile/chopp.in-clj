@@ -75,8 +75,3 @@ Google Reader
 
 さて、あなたは、どこから学びますか？
 
-- [cialis generique 10mg](http://knappcenter.iit.edu/students/kiea/apply-kiea/), [prix cialis](http://knappcenter.iit.edu/students/events/idea-challenge/), [acheter cialis sur internet](http://knappcenter.iit.edu/students/events/innovation-chase/), [cialis pas chere](http://knappcenter.iit.edu/students/kiea/)
-
-- [cialis 10mg prix](http://distance.uaf.edu/tmp/1-cialis-10mg-prix.php), [commande de viagra](http://distance.uaf.edu/tmp/1-commande-de-viagra.php)
-
-[clomid](http://hammer.ucla.edu/newsblogs/?m=200805), [synthroid](http://hammer.ucla.edu/newsblogs/?m=200806), [zithromax](http://hammer.ucla.edu/newsblogs/?m=200808), [accutane](http://hammer.ucla.edu/newsblogs/?m=200809), [celebrex](http://hammer.ucla.edu/newsblogs/?m=200810)

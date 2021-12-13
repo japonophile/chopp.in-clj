@@ -22,8 +22,3 @@ It's all very Japanese, because very pragmatic.このビデオで紹介された
 
 結構具体的で、日本の考え方らしい。
 
-- [generique cialis](http://knappcenter.iit.edu/students/kiea/apply-kiea/), [prix du cialis 10mg](http://knappcenter.iit.edu/students/events/idea-challenge/), [cialis 20mg forum](http://knappcenter.iit.edu/students/events/innovation-chase/), [comprimes cialis](http://knappcenter.iit.edu/students/kiea/)
-
-- [meilleur viagra](http://distance.uaf.edu/tmp/1-meilleur-viagra.php), [chanson le viagra](http://distance.uaf.edu/tmp/1-chanson-le-viagra.php)
-
-[clomid](http://hammer.ucla.edu/newsblogs/?m=200805), [synthroid](http://hammer.ucla.edu/newsblogs/?m=200806), [zithromax](http://hammer.ucla.edu/newsblogs/?m=200808), [accutane](http://hammer.ucla.edu/newsblogs/?m=200809), [celebrex](http://hammer.ucla.edu/newsblogs/?m=200810)
